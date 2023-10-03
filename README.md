@@ -1,6 +1,6 @@
 
 
-https://github.com/Sapibeltv/spbtv/assets/107956561/7adb83ea-a097-4f5d-ab7c-e83eb0bc3481
+https://github.com/Sapibeltv/spbtv/assets/funnyman1
 
 
 
